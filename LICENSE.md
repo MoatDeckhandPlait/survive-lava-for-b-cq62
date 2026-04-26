@@ -1,4 +1,4 @@
-
+rare Scripts for survive lava for brainrots is the best survive lava for brainrots Script, featuring teleport and auto-collect. Safe and powerful for
 
 
 
